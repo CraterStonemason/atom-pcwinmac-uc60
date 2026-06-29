@@ -1,4 +1,4 @@
-# 
+# Turbo Atom ferramentas para Mac OS | Premium Atom ferramentas para PC Windows. Com gerenciamento de tags e gerenciamento de índices — otimizado para máximo desempenho em cada plataforma.
 
 
 
